@@ -12,7 +12,7 @@
 
 - 🤝 Interested in **Collaborations!!**
 
-- 📄 Know about my experiences [https://kingk619.github.io/KV/](https://kingk619.github.io/KV/)
+- 📄 Know about my experiences [https://kingk619.github.io/KV-Website/](https://kingk619.github.io/KV/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
